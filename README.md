@@ -1,2 +1,0 @@
-# PA
-Bimbingan Tugas Akhir
